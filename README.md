@@ -1,4 +1,4 @@
- ![cred to princefrail on tumblr for graphic!](https://file.garden/Z9aVPiRziQ_aHOvU/tumblr_881f8caf7f6050f098e5099e94726c02_699829a8_400.png)
+ ![yay](https://files.catbox.moe/0e4rzu.png)
 ・
 [prns.cc ୨ৎ](https://pronouns.cc/@Snowcorpse)  
 [ atabook](https://aliceinborderlanddd.atabook.org/)
