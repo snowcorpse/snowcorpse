@@ -1,4 +1,2 @@
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
-    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  [atabook](https://aliceinborderlanddd.atabook.org/)
-    
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  [pronouns pags](https://pronouns.cc/@Snowcorpse)
+![cxo](https://files.catbox.moe/3oib6n.png)
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀[atabook](https://aliceinborderlanddd.atabook.org/)ノ[prns.cc](https://pronouns.cc/@Snowcorpse)
