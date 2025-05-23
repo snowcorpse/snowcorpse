@@ -1,5 +1,7 @@
+<div align = "center">
 
+  
+⠀⠀⠀◡◡⠀⠀⠀어느 옷을 고를까나?⠀⠀
+![image](https://files.catbox.moe/kbb4rp.gif) 
 
-　　　　　　　　　　　　　　　　　　　　　　![](https://files.catbox.moe/kbb4rp.gif)
-
-　　　　　　　　　　　　　　　　　　　　　　 ๋ ࣪  [atabook](https://aliceinborderlanddd.atabook.org/)[𓏲 ๋  ࣪ prns.cc](https://pronouns.cc/@Snowcorpse)                 
+⠀⠀[straw](https://emilll.straw.page/)⠀⠀✿   [ atabook](https://aliceinborderlanddd.atabook.org/)⠀
