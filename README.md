@@ -1,7 +1,7 @@
 <div align = "center">
 
   
-⠀⠀⠀◡◡⠀⠀⠀🦴   ⠀⠀
-![gif](https://files.catbox.moe/wnd1dp.gif) 
+⠀⠀⠀◡◡⠀⠀⠀  🦌 ⠀⠀
+![MITSIKI](https://files.catbox.moe/sf3hv9.png) 
 
 ⠀⠀[prns.cc](https://pronouns.cc/@Snowcorpse)⠀⠀✿   [ atabook](https://aliceinborderlanddd.atabook.org/)⠀
