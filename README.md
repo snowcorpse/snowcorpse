@@ -2,6 +2,6 @@
 
   
 ⠀⠀
-![MITSIKI](https://files.catbox.moe/1je486.gif) 
+![MITSIKI](https://files.catbox.moe/sanrzi.png) 
 
 ⠀⠀[prns.cc](https://pronouns.cc/@Snowcorpse)⠀⠀✿   [ atabook](https://aliceinborderlanddd.atabook.org/)⠀
