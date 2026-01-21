@@ -4,7 +4,7 @@
 ⠀⠀
 
 
-⠀⠀[**prns.cc**](https://pronouns.cc/@Snowcorpse)⠀   [ **atabook**](https://aliceinborderlanddd.atabook.org/)⠀
+⠀⠀I rarely play ponytown ok not active on here   
 <p align="center">
   
   </a>
