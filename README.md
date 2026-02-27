@@ -4,7 +4,7 @@
 ⠀⠀
 
 
-⠀⠀I rarely play ponytown ok not active on here   
+⠀⠀nct fans hmu OWO   
 <p align="center">
   
   </a>
