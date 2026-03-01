@@ -3,8 +3,8 @@
   
 ⠀⠀
 
-https://sunooosi.atabook.org/
-⠀⠀nct fans hmu OWO   
+
+⠀⠀wip   
 <p align="center">
   
   </a>
